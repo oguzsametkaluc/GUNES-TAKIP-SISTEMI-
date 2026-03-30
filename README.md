@@ -1,1 +1,1 @@
-# G-NE-TAK-P-S-STEM-
+# GÜNEŞ TAKİP SİSTEMİ 
