@@ -1,0 +1,1 @@
+# G-NE-TAK-P-S-STEM-
